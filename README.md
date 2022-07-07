@@ -1,2 +1,2 @@
-# mesin-turbo-octo
-Kjsjsnsnhshshhshs
+# mesin-turbo-octo 0ppof1s
+
