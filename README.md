@@ -1,2 +1,3 @@
-# mesin-turbo-octo 0ppof1s
+Android verai 6.0
+
 
